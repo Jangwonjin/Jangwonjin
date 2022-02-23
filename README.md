@@ -1,3 +1,3 @@
-## JANG WON JIN🐢
+## Jang Wonjin🐢
 
-![b440fe8b087416820258b711b91ca18a](https://user-images.githubusercontent.com/29253708/136196034-3a425f7d-8093-4800-b0a5-68cd30614e0e.gif)
+![b440fe8b087416820258b711b91ca18a](https://i.pinimg.com/originals/9a/28/60/9a28603def9dbf4871a67813311d9e8d.gif)
