@@ -1,3 +1,2 @@
-## 🐶JANG WON JIN🐶
-[![Hits](https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https%3A%2F%2Fgithub.com%2FJangwonjin&count_bg=%236A6C65&title_bg=%2346BEE9&icon=&icon_color=%23E7E7E7&title=hits&edge_flat=false)](https://hits.seeyoufarm.com)   
+## 🐶JANG WON JIN🐶 
 ![b440fe8b087416820258b711b91ca18a](https://i.pinimg.com/originals/9a/28/60/9a28603def9dbf4871a67813311d9e8d.gif)
